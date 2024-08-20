@@ -1,4 +1,1 @@
-I made something called A Wournal (a web journal)
-U YOOK NOGC
-I NEED @#$%
-![image](https://github.com/user-attachments/assets/3e044fd4-0366-49e0-a6f2-a1ca619a0750)
+![image](https://github.com/user-attachments/assets/2c1eb60f-5c21-464d-acc5-798a54adc174)
